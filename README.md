@@ -1,1 +1,1 @@
-# Covid-19-Impact-Analysis-Mini-Projec-
+# Covid-19-Impact-Analysis-Mini-Project-
